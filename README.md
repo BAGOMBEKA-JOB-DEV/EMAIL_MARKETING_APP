@@ -131,7 +131,7 @@ We welcome contributions from the community. To contribute:
 
 ## Contact
 
-For support, questions, or feature requests, please reach out via email at support@example.com.
+For support, questions, or feature requests, please reach out via email at bagombekajob16@gmail.com
 
 ---
 
